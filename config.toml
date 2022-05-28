@@ -1,6 +1,6 @@
 baseURL = "https://nishthasharma.netlify.app/"
 title = "NishthaSharma"
-theme = "hugo-coder"
+theme = "hugo-coders"
 languageCode = "en"
 defaultContentLanguage = "en"
 paginate = 20
