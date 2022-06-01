@@ -115,13 +115,6 @@ icon = "fa fa-2x fa-linkedin"
 weight = 4
 url = "https://www.linkedin.com/in/nishthasharma0516/"
 
-[[params.social]]
-name = "Instagram"
-icon = "fa fa-2x fa-instagram"
-weight = 1
-url = "https://github.com/nishthasharma1"
-
-
 [languages.en]
 languageName = ":uk:"
 
