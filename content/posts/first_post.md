@@ -1,8 +1,8 @@
 
 ---
 draft: false
-date: "2019-02-28"
+date: "2022-02-28"
 title: "First Post"
 ---
 
-Coming soon!
+First full post coming soon!
