@@ -115,6 +115,12 @@ icon = "fa fa-2x fa-linkedin"
 weight = 4
 url = "https://www.linkedin.com/in/nishthasharma0516/"
 
+[[params.social]]
+name = "Resume"
+icon = "fa fa-2x fa-file-o"
+weight = 4
+url = "https://resume.creddle.io/resume/3l8desh8y5w"
+
 [languages.en]
 languageName = ":uk:"
 
