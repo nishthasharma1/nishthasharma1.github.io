@@ -25,7 +25,7 @@ The chicken version of crossy road.
 ### [Magic paint](https://rainbowpaintrer.glitch.me/)
 Rainbow colours in paint strokes. 
 
-##Visuals: 
+## Visuals: 
 ### [Bravia Balls](https://joshua-nishtha.glitch.me/)
 Recreated the visual effect of the iconic Sony Bravia Balls
 
