@@ -12,6 +12,6 @@ Here is my reading list that consists of books that I have read, how I liked the
 - Reading [List](https://nishthasharma.notion.site/Reading-List-b8879defe4f14eb1bec1f870705b6946)
 
 Movies are gerat, some of them can truly be lessons that one learns and keeps with them for years and others are just a great way to spend time, here are a couple of movies that I have watched that I truly enjoyed and would recommend:
-- Watching [List](https://nishthasharma.notion.site/Watchlist-18eaa14544f54f5c8ae1cc0ea55d1ed4)
+- Watching [List](https://www.notion.so/nishthasharma/Watchlist-18eaa14544f54f5c8ae1cc0ea55d1ed4?pvs=4)
 
 
