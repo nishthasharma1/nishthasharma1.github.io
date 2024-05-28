@@ -14,5 +14,5 @@ Here is my reading list that consists of books that I have read, how I liked the
 Movies are great, some of them can truly be lessons that one learns and keeps with them for years and others are just a great way to spend time, here are a couple of movies that I truly enjoyed and would recommend:
 - Watching [List](https://www.notion.so/nishthasharma/Watchlist-18eaa14544f54f5c8ae1cc0ea55d1ed4?pvs=4)
 
-Alongside of the healthy walks I get out of hikihg, I also have the opportunity to see some beautiful views which I try capturing on my camera, here are some shots: 
-![image](https://github.com/nishthasharma1/nishthasharma1.github.io/assets/34902524/c52ff011-33c9-4523-8d6e-1dfa43d985b7)
+Alongside of the healthy walks I get out of hiking, I also have the opportunity to see some beautiful views which I try capturing on my camera, here are some shots: 
+
