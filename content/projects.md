@@ -14,7 +14,7 @@ This presentation was for ITEU where my topic was Smart Cities and how transport
 
 ### 404 Safety Project Proposal
 Within one of my courses, ENGG 404, Leadership in Risk Management, I have had the opportunity to study an Engineering Failure Case with fellow classmates and do an in-depth Risk Analysis about the project and how the company did and could have handled the situation.  
-[Case Analysis] (https://drive.google.com/file/d/1IiCFP-sUUv_sJwDFY6R553Ja85A23-LA/view?usp=sharing)
+[Case Analysis](https://drive.google.com/file/d/1IiCFP-sUUv_sJwDFY6R553Ja85A23-LA/view?usp=sharing)
 
 ## Games: 
 ### [Among Us Paddle Game](https://game1-6.glitch.me/)
