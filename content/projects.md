@@ -6,6 +6,11 @@ title: "Projects"
 ---
 
 ## Things I have built: 
+
+## Presentations and Research
+This presentation was for ITEU where my topic was Smart Cities and how transportation and daily living would be more efficient with cities being more technoloogically advanced and how. 
+[Presentation](https://drive.google.com/file/d/1MTPO7fp5FhHgWZtfA2VDGEimKE4wC8iK/view?usp=drive_link)
+
 ## Games: 
 ### [Among Us Paddle Game](https://game1-6.glitch.me/)
 A multiplayer game that is a combination of Among Us characters and virtual table tennis with superpowers. 
