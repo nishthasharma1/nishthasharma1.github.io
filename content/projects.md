@@ -8,7 +8,7 @@ title: "Projects"
 ## Things I have built: 
 
 ## Presentations and Research
-###Smart City Project 
+### Smart City Project 
 This presentation was for ITEUa where my topic was Smart Cities and how transportation and daily living would be more efficient with cities being more technoloogically advanced and how. 
 
 [Presentation](https://drive.google.com/file/d/1MTPO7fp5FhHgWZtfA2VDGEimKE4wC8iK/view?usp=drive_link)
