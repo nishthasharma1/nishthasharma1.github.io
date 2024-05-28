@@ -1,8 +1,8 @@
 
 ---
-draft: true
+draft: false
 date: "2023-08-19"
-title: "Semester 2.5"
+title: "Semester 2.5 Relfection"
 ---
 
 As I was taking 4 (and a half) courses this spring and summer semester, my main goals were: 
@@ -12,9 +12,9 @@ As I was taking 4 (and a half) courses this spring and summer semester, my main 
 - rekindle flames such as past hobbies and people 
 
 Trying to find my most effecient way of learning, I decided to put a spin on the way I would be studying and committing to my academic obligations as well:
-- If I can't figure outm the initial steps within 30 minutes, ask
+- If I can't figure out the initial steps to a problem within 30 minutes, ask for help
 - Create mindmaps for summaries
-- Do sample exams as if they were the exams preceeding the exam day and the review the wrong questions' solutions prior to the exam on the day (1 exam a day)
+- Do sample exams as if they were the exams preceeding the exam day and the review the incorrect questions' solutions prior to the exam on the day (1 exam a day)
 
 #The courses I took were:
 
