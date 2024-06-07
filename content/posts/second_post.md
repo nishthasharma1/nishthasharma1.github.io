@@ -2,7 +2,7 @@
 ---
 draft: false
 date: "2023-09-05"
-title: "Semester 2.5 Relfection"
+title: "Semester 2.5 Reflection"
 ---
 
 As I was taking 4 (and a half) courses this spring and summer semester, my main goals were: 
