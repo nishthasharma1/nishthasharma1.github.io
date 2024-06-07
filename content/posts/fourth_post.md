@@ -15,7 +15,7 @@ So, what happened (chronologically)?
 5. Garba Night at VVC
 6. Went to Denver, Colorado for an EIA conference 
 7. Went to India (after 5 years)! 
-8. Passed all of my classes like a big girl 
+8. Passed all of (and did well on) my classes like a big girl 
 9. Drove around and had a blast! 
 10. Started to cook more 
 
