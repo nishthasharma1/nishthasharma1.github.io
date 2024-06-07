@@ -16,7 +16,7 @@ Trying to find my most effecient way of learning, I decided to put a spin on the
 - Create mindmaps for summaries
 - Do sample exams as if they were the exams preceeding the exam day and the review the incorrect questions' solutions prior to the exam on the day (1 exam a day)
 
-#The courses I took were:
+# The courses I took were:
 
 - CHE 243 - Introduction to Thermodynamics
 - Mat E 202 - Material Science
@@ -36,10 +36,10 @@ ENG M 401 was fun since learning about finance was interesting to me and I know 
 
 # Social Life
 
-Living alone for the first time in the summer was an eventful experience. Having picnics outside, going and meeting with friends when there wasn’t an impending amount of school work, K-DAYS, playing basketball weres experiences I resonated with. It was meditating to go walk to a cafe and study or to discover new places. The biggest milestone was also celebrating my birthday without my family for the first time, it was when I realized the meaning of growing up in a minute scale - like how there will be moments in life where you will celebrate or remorse alone and that is the act of growing up. Regardless, my birthday was an extravagant experience that went on for several days. Eating out with friends (unfortunately I forgot to take photos :(, eating pastries from my favourtie bakery and going to the public library alone (something which I had wanted to do since first year but was to frightened to do)).
+Living alone for the first time in the summer was an eventful experience. Having picnics outside, going and meeting with friends when there wasn’t an impending amount of school work, K-DAYS and playing basketball at anytime of the day were some of the experiences I resonated with. It was calming to go walk to a cafe and study or to discover new places. The biggest change was celebrating my birthday without my family for the first time, it was then, that I realized the meaning of growing up in a minute scale - like how there will be moments in life where you will celebrate or remorse alone and that is the act of growing up. Regardless, my birthday was an extravagant experience that went on for several days. Eating out with friends, eating pastries from my favourite bakery and going to the public library alone (something which I had wanted to do since first year but was to frightened to do).
 
 
-#Hobbies: 
+# Hobbies: 
 
 - Learning new music pieces on the piano
     - Imagine Dragons: Demons
