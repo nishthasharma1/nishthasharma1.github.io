@@ -16,10 +16,10 @@ in respect to that, here are 21 things that i am utterly grateful for:
     2. their health being well - it is so important to remember that as i am growing, so are they and as life goes on, mom and dad’s hardships from my youth are catching up so be mindful. 
     3. their wishes - they wish well for me and i don’t want to let them down. 
 2. my health
-    1. i have good days → where i can conquer the world 
-    2. i have bad days → where i just want to stay in my blanket and sleep it off
-    3. i have the mid-days → where i am not my best self, maybe with a stuffed nose and a sore throat, but i am powering through with my responsibilities 
-    4. but i am happy to be alive and will try to make my body healthier so that i can have an easier day when i am old and 4'10 
+    1. i have good days 
+    2. i have bad days 
+    3. i have the mid-days 
+    4. but i am happy to be alive 
 3. my discipline
     1. the habit of waking up, praying/meditating sets a tone for the day 
     2. the habit of making my bed right after i wake up or before i leave the house helps me welcome myself when i come back
@@ -32,7 +32,7 @@ in respect to that, here are 21 things that i am utterly grateful for:
     4. the ones that aren’t considered as friends 
 5. my job 
     1. having worked for this for the last two summers and finally got one for this summer
-    2. it's a corporate job that assists me and i am not complaining in the slightest, i love what i am learning and appreciate the people who are willing to answer my questions
+    2. it's a corporate job that assists me, i love what i am learning and appreciate the people who are willing to answer my questions
 6. my education 
     1. i am honoured to be able to study and learn about anything to everything that piques my curiosity 
     2. i am finally loving things that i had never been able to when i was in high school like history and physics 
@@ -59,7 +59,7 @@ in respect to that, here are 21 things that i am utterly grateful for:
 15. my laptop + ipad + iphone
     1. for the stickers → i wanna cover them up aesthetically with stickers
     2. for the ability to work → it's very useful obviously 
-    3. thank you for the birthday gift + diwali bhaiya
+    3. thank you bhaiya
     4. THE 0.5s GO AMAZING
 16. MY CAR
     1. despite being the little rusty girl she is, i love her, she has gone through the most and still is surviving and allowing me to make memories that i could never forget
