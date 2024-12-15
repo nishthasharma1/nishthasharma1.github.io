@@ -26,7 +26,7 @@ in respect to that, here are 21 things that i am utterly grateful for:
     3. trying to move my body every hour helps me feel refreshed 
     4. taking my vitamins in the morning keeps me energized and sets the day on the right tone
 4. my friends
-    1. the ones i talk to every day → thank you. for listening to my nonsensical stuff to the oversighted panic attacks i may have. thank you
+    1. the ones i talk to every day → thank you. for listening to my nonsensical stuff to the oversighted panic attacks i may have. thank you (j, p, a)
     2. the ones i talk to once in a while
     3. the ones that are now once upon a time
     4. the ones that aren’t considered as friends 
@@ -53,9 +53,9 @@ in respect to that, here are 21 things that i am utterly grateful for:
     1. i just look so good and feel confident!!
 13. my travels 
     1. going to india and meeting everyone again and reconnecting is such a blessing, i don’t know when i will see them next and leaving with these good memories helps 
-    2. going to denver and making some really good friendships come out of it always helps → hi hanna, anna and ryan! 
+    2. going to denver and making some really good friendships come out of it always helps → hi h, a and r! 
 14. my learning curve with makeup 
-    1. it wasn’t much of a curve, i just started wearing it for work every day and pranavi and sukhnoor helped me with my progress
+    1. it wasn’t much of a curve, i just started wearing it for work every day and p and s helped me with my progress
 15. my laptop + ipad + iphone
     1. for the stickers → i wanna cover them up aesthetically with stickers
     2. for the ability to work → it's very useful obviously 
@@ -74,12 +74,12 @@ in respect to that, here are 21 things that i am utterly grateful for:
     1. in a club → i can see why people would not enjoy that atmosphere, it’s sticky, smelly and busy
     2. in my room → i love being able to dance in my comfort, to the max or the least, it’s so fun to not be SEEN but still be seen 
 20. my learning curve with cooking
-    1. i have my good days, now the usual(s) are burritos with salad and patties alongside an exquisite palate of sauces combination cured by your very own, nishtha 🙂
+    1. i have my good days, now the usual(s) are burritos with salad and patties alongside an exquisite palate of sauces combination cured by your very own
     2. i like making manchurian, or anything with paneer tbh, it makes life so much better
 21. all of my ‘seasons’ of passions
     1. i have a rock climbing era
-    2. i have a dresses and skirts era (living it rn)
-    3. i have a rappers era → entailed of oversized clothing + talking like i am from the hood
+    2. i have a dresses era (living it rn)
+    3. i have a rappers era → entailed of oversized clothing 
     4. i have the runners era → I WANNA DO A HALF MARATHON 
     
     yeah, i am grateful for many things. 
@@ -91,10 +91,7 @@ in respect to that, here are 21 things that i am utterly grateful for:
         - i want to read or journal every day, the books are right by my desk, but work on it
         - i want to go to the gym >3 days a week
     - do things for me
-        - don’t be ashamed to be feminine
-            - paint my nails, put makeup on, wear clothes that i feel confident and comfortable in, grow plants and be the plant mom, feel free to post things without cringing
-    - swear less and talk more eloquently
-        - i am getting older, i don’t need to swear in every sentence
+    - talk more eloquently
     - watch less tv alone
     - spend more time outside, walk mindlessly + from work
     - cook more → eating out is not good for my bank or my gut
